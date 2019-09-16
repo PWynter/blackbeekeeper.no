@@ -1,7 +1,7 @@
 ## Welcome to Blackbeekeeper.no
 
 
-###This is a test
+coming soon...
 
 info@blackbeekeeper.no
 
