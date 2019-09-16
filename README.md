@@ -1,6 +1,6 @@
 ## Coming soon...
 
-info@blackbeekeeper.no
+For more information contact info@blackbeekeeper.no
 
 
 
