@@ -1,7 +1,7 @@
 ## Welcome to Blackbeekeeper.no
 
 
-coming soon...
+Coming soon...
 
 info@blackbeekeeper.no
 
