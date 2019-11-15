@@ -1,6 +1,6 @@
 ## Coming soon...
 
-For more information contact info@blackbeekeeper.no
+For more information contact +47 47162707
 
 
 
